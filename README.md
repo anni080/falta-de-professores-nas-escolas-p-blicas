@@ -1,1 +1,1 @@
-# falta-de-professores-nas-escolas-p-blicas
+# falta-de-professores-nas-escolas-publicas
